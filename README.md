@@ -1,0 +1,1 @@
+[Linkedin Article](https://www.linkedin.com/posts/amirovaleh_apple-ad%C9%99t%C9%99n-yeni-native-komponentl%C9%99r%C3%A7%C3%BCn-activity-7338187264629366784-n85y?utm_source=social_share_send&utm_medium=member_desktop_web&rcm=ACoAACfX7p4B0tScbC5Lk0gf7RmOuho90DIlpAw)
